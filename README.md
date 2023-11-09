@@ -40,4 +40,3 @@ Confira nossas promoções atuais [aqui](link-para-promocoes).
 
 Estamos ansiosos para ajudá-lo a alcançar seus objetivos de fitness. Entre em contato conosco hoje para saber mais sobre como podemos ajudar você a trilhar o caminho para um estilo de vida mais saudável!
 
-(/image/logo1.png)
